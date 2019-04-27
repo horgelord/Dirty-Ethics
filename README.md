@@ -1,2 +1,2 @@
 # Dirty Ethics
-## *You are starting up a company, and your need for money grows until you become desperate. How low can you go?*
+## *You are starting up a company, and the profit is coming in slowly. As the needs for cash worsen, you only get more desperate. How low can you go?*
